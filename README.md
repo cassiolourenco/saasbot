@@ -1,1 +1,1 @@
-Todos os direitos reservados a https://atendechat.com
+Todos os direitos reservados a https://www.clsweb.com.br
